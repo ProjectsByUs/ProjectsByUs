@@ -2,7 +2,7 @@
 - 👀 We are interested in everything, that promises a great future ahead.
 - 🌱 We are currently learning ...
 - 💞️ We are looking to collaborate on our most of the projects.
-- 📫 How to reach me - insta @uday5harma
+- 📫 How to reach us - insta @uday5harma
 - ⚡ Fun fact: Buzz Lightyear's original name was Lunar Larry.
 
 <!---
