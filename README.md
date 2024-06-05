@@ -1,7 +1,6 @@
 - 👋 Hi, it's @ProjectsByUs
 - 👀 Interested in everything, that promises a great future ahead.
 - 🌱 Currently learning ...
-- 💞️ Looking to collaborate on most of the projects.
 - 📫 Contact - insta @uday5harma
 - ⚡ Fun fact: Buzz Lightyear's original name was Lunar Larry.
 
